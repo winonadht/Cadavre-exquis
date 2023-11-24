@@ -6,6 +6,7 @@ x rituel humain de transformation des légumes en amis potentiels. La patate, qu
 se en se transformant en purée instantanée, mais cela n'impressionna guère le chien, habitué aux rebondissements culi
 naires.
 
+
 De nos jours la vie est dure. Quand on est une petite patate!
 Qu’on soit mûre ou pas mûre, Il faut bien se tenir sur ses pattes!
 Alors mon pt’it gars, Si t’es une petite patate comme moi!
@@ -20,4 +21,10 @@ Si tu ne veux pas finir dans un gratin!
 
 au sommet de la colline, le soleil deployait ses rayons dorés, caressant la natue endormie.
 les ombres dansaient au rythmes de la brise matinale, créant un tableau éphémère de lumière et douceur
+
+
+Mais quand elle se mit à chanter "je suis une petite patate", elle se transforma en super-patate.
+Avec des capacités hors du commun, elle pouvait à présent voler et devenir invisible. 
+Elle se mit à voler jusque le champs à frites où l'apparence d'un éléphant rose était surprenante.
+Mais ils deviennent meilleurs amis pour la vie.
 
