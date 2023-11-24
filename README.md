@@ -17,3 +17,7 @@ J’te conseille de courir de courir vite, Si tu ne veux pas finir taillé en fr
 gna gna gna gna gna gna gna gna gna gna gnaAlors mon pt’it gars,
 Si t’es une petite patate comme nous! Ces paroles écoutes-les bien,
 Si tu ne veux pas finir dans un gratin!
+
+au sommet de la colline, le soleil deployait ses rayons dorés, caressant la natue endormie.
+les ombres dansaient au rythmes de la brise matinale, créant un tableau éphémère de lumière et douceur
+
