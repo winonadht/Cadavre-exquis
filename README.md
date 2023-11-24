@@ -7,6 +7,7 @@ se en se transformant en purée instantanée, mais cela n'impressionna guère le
 naires.
 
 
+
 De nos jours la vie est dure. Quand on est une petite patate!
 Qu’on soit mûre ou pas mûre, Il faut bien se tenir sur ses pattes!
 Alors mon pt’it gars, Si t’es une petite patate comme moi!
@@ -28,3 +29,8 @@ Avec des capacités hors du commun, elle pouvait à présent voler et devenir in
 Elle se mit à voler jusque le champs à frites où l'apparence d'un éléphant rose était surprenante.
 Mais ils deviennent meilleurs amis pour la vie.
 
+
+Cependant, la purée instantanée créa une diversion momentanée, permettant à la patate de rouler hors de la casserole.
+Elle prit rapidement conscience de son environnement hostile, la cuisine bourdonnante d'activité.
+Évitant de justesse les pieds pressés des cuisiniers affairés, la patate rebelle dérapa habilement vers un coin sombre.
+b
