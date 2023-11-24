@@ -5,3 +5,6 @@ Dans une cuisine bien agitée, une patate rebelle se retrouva soudainement plong
 x rituel humain de transformation des légumes en amis potentiels. La patate, quant à elle, tenta une évasion audacieu
 se en se transformant en purée instantanée, mais cela n'impressionna guère le chien, habitué aux rebondissements culi
 naires.
+
+au sommet de la colline, le soleil deployait ses rayons dorés, caressant la natue endormie.
+les ombres dansaient au rythmes de la brise matinale, créant un tableau éphémère de lumière et douceur
