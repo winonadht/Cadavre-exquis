@@ -5,3 +5,8 @@ Dans une cuisine bien agitée, une patate rebelle se retrouva soudainement plong
 x rituel humain de transformation des légumes en amis potentiels. La patate, quant à elle, tenta une évasion audacieu
 se en se transformant en purée instantanée, mais cela n'impressionna guère le chien, habitué aux rebondissements culi
 naires.
+
+Mais quand elle se mit à chanter "je suis une petite patate", elle se transforma en super-patate.
+Avec des capacités hors du commun, elle pouvait à présent voler et devenir invisible. 
+Elle se mit à voler jusque le champs à frites où l'apparence d'un éléphant rose était surprenante.
+Mais ils deviennent meilleurs amis pour la vie.
